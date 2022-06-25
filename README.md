@@ -1,0 +1,1 @@
+# jogoCapitalMobile2022
